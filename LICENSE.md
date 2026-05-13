@@ -1,4 +1,4 @@
-
+NordVPN automatic Plugin: camouflage-mode & tracker-blocker offers the most advanced NordVPN plugin, with camouflage-mode and tracker-blocker. Ideal for users who value privacy
 
 
 
